@@ -1,2 +1,0 @@
-# kinomaxpro
-http://kinomaxpro.com
